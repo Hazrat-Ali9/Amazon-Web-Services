@@ -2,7 +2,7 @@
 
 # 🚞 Programmer || Software Engineer 
 
-# CEO & Founder HMSoftTecH nnovation
+# CEO & Founder HMSoftTecH Innovation
 
 # 1. Step-by-Step Instructions
 
